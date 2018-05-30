@@ -7,6 +7,26 @@
 # Quotidiennes
 
 ---
+MERCREDI 30 mai
+---
+
+*AUJOURD'HUI*
+* On a vidé le garage - 2 déchetteries et 1 Emaüs
+* Visite de la maison par Anne Godet qui a donné plein de conseils sympas
+* Signature de l'assurance habitation
+* Création d'un tableur pour gérer les dépenses sur la période du déménagement (il me faudrait ton adresse email, si tu veux le consulter)
+* On a actualisé maman sur son solde, j'étais embêté de partir en laissant les fausses assertions que j'avais proférées ces derniers jours. Ex. Tu as économisé presque l'équivalent de ta maison.  
+
+*DEMAIN*
+* Je vais lister quelques tâches qui me semblent prioritaires.
+* Appeler EDF pour expliquer la situation, et demander qu'ils arrêtent les prélèvements prévisionnels.
+* Préparer mon dossier CCAS pour enlever ma domiciliation chez maman.
+
+*AMBIANCE*
+* Mamina : 🙂 😱
+* Heureuse et fatiguée, et un peu en colère sur le solde
+
+---
 MARDI 29 mai
 ---
 
@@ -17,6 +37,8 @@ MARDI 29 mai
 - Comparatif offre téléphone et télévision : Orange, SFR, Free
 - Chq Camion Super U
 - Passage à la banque, déblocage CB et virement de remboursement (j'avais avancé le frigo car la CB était bloquée)
+- Achat téléphone
+- Achat mixeur multi-cuisson
 
 *DEMAIN*
 - Visite appartement
