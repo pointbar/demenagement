@@ -6,6 +6,26 @@
 
 # Quotidiennes
 
+---
+MARDI 29 mai
+---
+
+*AUJOURD'HUI*
+- 1 voyage à la déchetterie (garage)
+- 1 voyage à Emaüs (chaises, livres, ...)
+- Demande Allianz assurance maison pour Mortagne et passer celle de Saint-Léger en non-habitée
+- Comparatif offre téléphone et télévision : Orange, SFR, Free
+- Chq Camion Super U
+- Passage à la banque, déblocage CB et virement de remboursement (j'avais avancé le frigo car la CB était bloquée)
+
+*DEMAIN*
+- Visite appartement
+- Vérifier que l'armoire normande passe
+- Voyages déchetterie pour le garage
+- Visite Anne Godet
+
+*Ambiance*
+- Mamina : 💪 😍
 
 ---
 LUNDI 28 mai
