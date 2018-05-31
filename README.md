@@ -7,6 +7,28 @@
 # Quotidiennes
 
 ---
+JEUDI 31 mai
+---
+
+*AUJOURD'HUI*
+- Contact EDF :
+  - création de l'espace Web
+  - changement de contrat pour la Cheminée à partir du 26/06
+  - démarrage pour la souscription du contrat EDF/GAZ de Mortagne
+- Démarrage du changement d'adresse sur service-public.fr
+- Mail à Mme Cousseau pour les rensignements EDF, téléphonie et TV
+- Ouverture d'un espace pour gérer les tâches et d'un dépôt pour les documents
+- Création d'un -mémento- et d'un document pour les liens utiles
+
+*DEMAIN*
+- Terminer EDF
+- Terminer le changement d'adresse
+- Contacter l'organisme pour les diagnostics
+
+*AMBIANCE*
+* Mamina : ??
+
+---
 MERCREDI 30 mai
 ---
 
