@@ -19,6 +19,8 @@ JEUDI 31 mai
 - Mail à Mme Cousseau pour les rensignements EDF, téléphonie et TV
 - Ouverture d'un espace pour gérer les tâches et d'un dépôt pour les documents
 - Création d'un -mémento- et d'un document pour les liens utiles
+- Mail à Detex pour les diagnostics
+- Coup de fil à mamina pour récupérer : carte grise, impot, SS, ...
 
 *DEMAIN*
 - Terminer EDF
