@@ -21,11 +21,11 @@ JEUDI 31 mai
 - Création d'un -mémento- et d'un document pour les liens utiles
 - Mail à Detex pour les diagnostics
 - Coup de fil à mamina pour récupérer : carte grise, impot, SS, ...
+- Contacter l'organisme pour les diagnostics
 
 *DEMAIN*
 - Terminer EDF
 - Terminer le changement d'adresse
-- Contacter l'organisme pour les diagnostics
 
 *AMBIANCE*
 * Mamina : ??
