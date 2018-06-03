@@ -7,6 +7,22 @@
 # Quotidiennes
 
 ---
+DIMANCHE 3 juin
+---
+
+*AUJOURD'HUI*
+* Changement d'adresse terminé
+* µ-formation avec Sylvie sur Github 
+
+*DEMAIN*
+- Rappel Mme Cousseau
+- Terminer ce qui est -en cours-
+- Commander la Box
+
+*AMBIANCE*
+* Mamina : ?
+
+---
 JEUDI 31 mai
 ---
 
