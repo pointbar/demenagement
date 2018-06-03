@@ -28,7 +28,7 @@ JEUDI 31 mai
 - Terminer le changement d'adresse
 
 *AMBIANCE*
-* Mamina : ??
+* Mamina : ?
 
 ---
 MERCREDI 30 mai
