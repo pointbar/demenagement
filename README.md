@@ -20,7 +20,7 @@ DIMANCHE 3 juin
 - Commander la Box
 
 *AMBIANCE*
-* Mamina : ?
+* Mamina : tout va bien ! :) :)
 
 ---
 JEUDI 31 mai
