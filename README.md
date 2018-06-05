@@ -5,6 +5,14 @@
 [Documentation](https://drive.google.com/drive/folders/1Ufv4J332j97pa5vl8jurDqzsxcv3khc3)
 
 # Quotidiennes
+LUNDI 4 JUIN
+* on est allé revoir l'appart avec Mamina
+A priori l'armoire Normande trouve sa place et "passe"
+Le salon de jardin sera nickel
+La cuisine : c'est confirmé qu'il faut prévoir l'achat d'une petite cuisine aménagée avec placards haut et bas + plan de travail. La question de la gazinière se confirme car ce serait effectivement plus judicieux d'acheter plaques gaz et four indépendant. Le petit Hic, c'est qu'il y aura un petit délai... Donc quoi mettre en attendant ? Je peux lui prêter une petite plaque à induction, mais ??? ou alors on emmène sa vieille gazinière pour les 1ers jours, mais il faudra changer les injecteurs (gaz bouteille / gaz de ville)
+Maman ne veut plus de sa grande table, elle a envie d'une autre moins encombrante.... 
+* A suivre RV dermato = bon ressenti
+* Mamina : :) 
 
 ---
 DIMANCHE 3 juin
