@@ -11,14 +11,14 @@ JEUDI 7 JUIN
 Il pense que le plus économique c'est d'acheter une cuisine dans un magasin bon marché (je vais chercher) et il veut bien la monter.
 
 *Demain*
-j'essaie de téléphoner à la mairie pour savoir comment obtenir l'année de construction de la Cheminée et si le quartier est classé ou libre par rapport à des travaux d'ouverture (baies vitrées) pour renseigner les acheteurs éventuels
+* j'essaie de téléphoner à la mairie pour savoir comment obtenir l'année de construction de la Cheminée et si le quartier est classé ou libre par rapport à des travaux d'ouverture (baies vitrées) pour renseigner les acheteurs éventuels
 
 *Ce week-end*
 - cartons et Emmaüs
 - regarder sur les contrats d'assurance maison pour la superficie
 
 *mercredi prochain*
-Maxime vient voir l'appartement pour évaluer les besoins cuisine
+* Maxime vient voir l'appartement pour évaluer les besoins cuisine
 
 *Ambiance*
 :)
