@@ -16,7 +16,7 @@ sur le site de la mairie dans l'onglet "urbanisme" il y a les renseignements sur
 * Aujourd'hui 
 
 Je passe à Bradorama pour savoir si je peux récupérer le canapé du salon le 30 juin au soir
-On va voir des meubles cuisine avec maman
+ 
 ---
 JEUDI 7 JUIN
 * J'ai discuté avec Maxime pour la cuisine,
