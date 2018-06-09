@@ -6,7 +6,29 @@
 
 # Quotidiennes
 ---
+SAMEDI 9 JUIN
+---
+
+* AUJOURD HUI
+
+- BUT et CONFORAMA avec Mamina pour regarder les cuisines
+MAmina carrément séduite par les cuisine "1ers prix" c'est à dire petits éléments modulables de dimensions adaptées haut et bas avec plan de travail. pour environ 200 à 300 euros max. On voit ça mercredi avec Maxime
+
+- Je suis passée à Bradorama, je dois rappeler mardi pour avoir des nouvelles de la commande du BZ, il faudra voir comment on fait pour récupérer le canapé gris samedi 30 juin... ou avant.
+
+- Théo s'est arrangé avec Justin, finalement il n'y aura pas besoin d'un camion Super U, le nouveau camion de Justin est immense et Maxime aura son T4
+
+* DEMAIN 
+
+- Christine et Roberto viennent passer un brin d'après midi chez moi, Brigitte passe chercher Mamina pour nous rejoindre.
+
+* AMBIANCE
+
+_ Heureusement que nous sommes sorties aujourd'hui car l'ambiance était un peu tristoune à la Cheminée... La maison se dépouille et c'est difficile. Maman est un peu submergée, tiraillée entre ce qu'elle a envie d'emporter et la culpabilité de se séparer des draps de mémé, des lampes, des grès, des objets.... Elle m'a avoué qu'elle n'aime pas la grande TV qu'elle n'allume jamais mais c'est la TV de Papey ! Ce n'était pas facile à dire pour elle ! Je lui ai dit que si elle préfère la petite, alors on vend la grande et basta !... @pointbar
+
+----
 VENDREDI 8 JUIN
+----
 
 * La mairie ne sait pas pour l'année de construction. Il faut appeler l'office notarial qui a géré la vente ou le cadastre. Je vais voir...
 
@@ -19,6 +41,8 @@ Je passe à Bradorama pour savoir si je peux récupérer le canapé du salon le 
  
 ---
 JEUDI 7 JUIN
+---
+
 * J'ai discuté avec Maxime pour la cuisine,
 Il pense que le plus économique c'est d'acheter une cuisine dans un magasin bon marché (je vais chercher) et il veut bien la monter.
 
@@ -38,6 +62,7 @@ Il pense que le plus économique c'est d'acheter une cuisine dans un magasin bon
 ---
 LUNDI 4 JUIN
 ___
+
 * on est allé revoir l'appart avec Mamina :
 - A priori l'armoire Normande trouve sa place et "passe"
 - Le salon de jardin sera nickel
