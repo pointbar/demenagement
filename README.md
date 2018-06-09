@@ -6,6 +6,18 @@
 
 # Quotidiennes
 ---
+VENDREDI 8 JUIN
+
+* La mairie ne sait pas pour l'année de construction. Il faut appeler l'office notarial qui a géré la vente ou le cadastre. Je vais voir...
+
+* explication de la mairie de St Léger par rapport à des projets de travaux d'ouverture d'une baie dans le salon à La Cheminée pour "inciter" d'éventuels acheteurs à se projeter : 
+sur le site de la mairie dans l'onglet "urbanisme" il y a les renseignements sur les contraintes façade ext (matériaux, couleurs...) et le quartier n'est pas en zone contrainte "classé", donc c'est possible.
+
+* Aujourd'hui 
+
+Je passe à Bradorama pour savoir si je peux récupérer le canapé du salon le 30 juin au soir
+On va voir des meubles cuisine avec maman
+---
 JEUDI 7 JUIN
 * J'ai discuté avec Maxime pour la cuisine,
 Il pense que le plus économique c'est d'acheter une cuisine dans un magasin bon marché (je vais chercher) et il veut bien la monter.
