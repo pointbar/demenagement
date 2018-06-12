@@ -5,6 +5,18 @@
 [Documentation](https://drive.google.com/drive/folders/1Ufv4J332j97pa5vl8jurDqzsxcv3khc3)
 
 # Quotidiennes
+
+---
+MARDI 12 JUIN
+---
+* Aujourd'hui
+- J'ai pris les billets de train de Louna : 25/06 au 29/06
+- Ouverture de la Box Red - téléphonie + TV
+
+* Demain
+- EDF 
+- Eau
+
 ---
 SAMEDI 9 JUIN
 ---
