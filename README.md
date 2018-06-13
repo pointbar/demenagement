@@ -5,23 +5,23 @@
 [Documentation](https://drive.google.com/drive/folders/1Ufv4J332j97pa5vl8jurDqzsxcv3khc3)
 
 # Quotidiennes
-@pointbar
+ 
 ---
 MERCREDI 13 JUIN
 ---
 * Aujourd'ui
--  On a pris les mesures de la cuisine, les travaux avancent dans l'appart, ils ont posé un évier et un meuble sous évier.
-    Maxime a dessiné un petit projet, reste plus qu'à acheter les éléments : 2 meubles haut : 31,99 € x 2
-                                                                             2 meubles bas  : 37,99 € x 2 (ils seront reliés entre eux par un plan de travail fabriqué par Maxime ce qui formera un L de la gazinière avec un retour perpendiculaire.)
-                                                                             1 meuble colonne : 90,69 (à côté du frigo) :         hauteur 1 m 41 ce qui permet de poser le petit four dessus et de ranger l'épicerie
-                                                                             Une gazinière : 60 cm de large
+ -  On a pris les mesures de la cuisine, les travaux avancent dans l'appart, ils ont posé un évier et un meuble sous évier.
+    Maxime a dessiné un petit projet, reste plus qu'à acheter les éléments : . 2 meubles haut : 31,99 € x 2
+                                                                             . 2 meubles bas  : 37,99 € x 2 (ils seront reliés entre eux par un plan de travail fabriqué par Maxime ce qui formera un L de la gazinière avec un retour perpendiculaire.)
+                                                                             . 1 meuble colonne : 90,69 (à côté du frigo) :         hauteur 1 m 41 ce qui permet de poser le petit four dessus et de ranger l'épicerie
+                                                                             . Une gazinière : 60 cm de large
 * Samedi
-- Si mon dos le permet, nous irons faire les achats
+ - Si mon dos le permet, nous irons faire les achats
 
 * Météo 
-- J'ai une saloperie de lumbago, jamais eu ça avant... c'est pas la fête !
-- Brigitte doit venir passer 2/3 jours la semaine prochaine, Mamina est très contente
-- La visite de l'appart aujourd'hui = cool, Mamina était contente 
+ - J'ai une saloperie de lumbago, jamais eu ça avant... c'est pas la fête !
+ - Brigitte doit venir passer 2/3 jours la semaine prochaine, Mamina est très contente
+ - La visite de l'appart aujourd'hui = cool, Mamina était contente 
 ---
 MARDI 12 JUIN
 ---
