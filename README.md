@@ -5,7 +5,9 @@
 [Documentation](https://drive.google.com/drive/folders/1Ufv4J332j97pa5vl8jurDqzsxcv3khc3)
 
 # Quotidiennes
-
+MERCREDI 13 JUIN
+* Aujourd'ui
+- Maxime est venu à l'appart, on a pris les mesures de la cuisine, les travaux avancent dans l'appart, ils ont posé un évier et un meuble sous évier.
 ---
 MARDI 12 JUIN
 ---
