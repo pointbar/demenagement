@@ -17,7 +17,7 @@ AUJOURD HUI :
                                                                              
     . 2 meubles bas  : 37,99 € x 2 (ils seront reliés entre eux par un plan de travail fabriqué par Maxime ce qui formera un L à partir de la gazinière avec un retour perpendiculaire.)
     
-    . 1 meuble colonne : 90,69 (à côté du frigo) : hauteur 1 m 41 ce qui permet de poser le petit four dessus et de ranger l'épicerie
+    . 1 meuble colonne : 90,69 € (à côté du frigo) : hauteur 1 m 41 ce qui permet de poser le petit four dessus et de ranger l'épicerie
                                                                             
     . Une gazinière : 60 cm de large
     
