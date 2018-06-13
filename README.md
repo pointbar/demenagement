@@ -9,7 +9,8 @@
 ---
 MERCREDI 13 JUIN
 ---
-* Aujourd'ui
+AUJOURD HUI :
+
  -  On a pris les mesures de la cuisine, les travaux avancent dans l'appart, ils ont posé un évier et un meuble sous évier.
     Maxime a dessiné un petit projet, reste plus qu'à acheter les éléments : 
     . 2 meubles haut : 31,99 € x 2
@@ -20,11 +21,11 @@ MERCREDI 13 JUIN
                                                                             
     . Une gazinière : 60 cm de large
     
-* Samedi
+SAMEDI :
 
  - Si mon dos le permet, nous irons faire les achats
 
-* Météo famille :
+METEO FAMILLE :
 
  - J'ai une saloperie de lumbago, jamais eu ça avant... c'est pas la fête !
  - Brigitte doit venir passer 2/3 jours la semaine prochaine, Mamina est très contente
