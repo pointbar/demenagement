@@ -13,6 +13,7 @@ AUJOURD HUI :
 
  -  On a pris les mesures de la cuisine, les travaux avancent dans l'appart, ils ont posé un évier et un meuble sous évier.
     Maxime a dessiné un petit projet, reste plus qu'à acheter les éléments : 
+    
     . 2 meubles haut : 31,99 € x 2
                                                                              
     . 2 meubles bas  : 37,99 € x 2 (ils seront reliés entre eux par un plan de travail fabriqué par Maxime ce qui formera un L à partir de la gazinière avec un retour perpendiculaire.)
