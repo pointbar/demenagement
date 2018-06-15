@@ -5,7 +5,15 @@
 [Documentation](https://drive.google.com/drive/folders/1Ufv4J332j97pa5vl8jurDqzsxcv3khc3)
 
 # Quotidiennes
- 
+---
+VENDREDI 15 JUIN
+---
+AUJOURD HUI :  
+- j'ai récupéré le colis SFR
+
+METEO FAMILLE :
+- Mamina pas du tout en forme, moral :( un peu submergée et se sent seule et démunie...
+
 ---
 MERCREDI 13 JUIN
 ---
