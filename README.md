@@ -6,6 +6,34 @@
 
 # Quotidiennes
 ---
+SAMEDI 23 JUIN
+---
+
+AUJOURD HUI
+
+* Mamina Brigitte et Sylvie
+Achat de la Gazinière 275 euros + meubles de cuisine 210 euros à Conforama
+Tour de son 99 euros à Cultura
+
+DEMAIN
+
+* Je vais aller chez maman pour faire de l'organisation car elle se sent complètement perdue et il y a encore des meubles qui contiennent pas mal d'objets dont elle ne sait que faire... L'idée c'est de faire en sorte que ce soit facile pour ceux qui déménagent d'identifier ce qui part et ce qui doit rester. Et de ne pas avoir à faire des cartons le jour J !
+
+MARDI 
+
+* Stef doit assurer la permanence à l'appartement de 13 h 30 à 15 h 30 : créneau de passage du technicien pour téléphone et TV
+
+* Brigitte doit aller chercher les meubles de cuisine et la gazinière vers 15 H 00, ne pas oublier de prendre les papiers conforama qui sont sur le meuble cuisine chez maman.
+
+MERCREDI
+
+* Maxime et Chloé viennent à Mortagne : Pose de la cuisine / agencement
+
+POUR LA SUITE 
+
+* J'ai parlé avec maman aujourd'hui de l'idée de faire "un vide maison" pour tous les petits et moins petits objets dont elle ne sait que faire, elle trouve que c'est une bonne idée, à condition qu'elle n'y soit pas.
+
+
 VENDREDI 15 JUIN
 ---
 AUJOURD HUI :  
