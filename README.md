@@ -6,6 +6,29 @@
 
 # Quotidiennes
 ---
+LUNDI 2 JUILET
+---
+
+AUJOURD HUI
+
+* Téléphone à EDF pour régler le problème. Normalement tout est clair. Peut-être faudra-t-il appuyer sur le + du compteur.
+* Nous sommes passé avec Mamina pour faire le changement d'adresse à la Poste.
+* Résiliation du téléphone de la Cheminée un courrier devrait arriver à Mortagne, mais c'est déjà actif.
+* La personne du diagnostic à répondu : #4.
+* Explication à Mamina le fonctionnement de son mixer pour sa soupe, et les cuissons vapeurs.
+* Explication à Mamina du fonctionnement de la tour CD.
+* Téléphone à Allianz, rappel demain.
+
+DEMAIN
+
+* Allianz pour l'assurance Cheminée
+* Impôt pour la taxe foncière
+* Anjou Habitat pour le téléphone et la terasse
+
+METEO FAMILLE :
+- Mamina plutôt 🌤, fatiguée de ne pas assez dormir. Hier avec ⛈ c'était difficile.
+
+---
 SAMEDI 23 JUIN
 ---
 
