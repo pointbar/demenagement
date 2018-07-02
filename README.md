@@ -5,11 +5,20 @@
 [Documentation](https://drive.google.com/drive/folders/1Ufv4J332j97pa5vl8jurDqzsxcv3khc3)
 
 # Quotidiennes
+
 ---
 LUNDI 2 JUILET
 ---
 
 AUJOURD HUI
+
+* Mr Huteau SLH a téléphoné pour savoir si tout était OK (ménage, nettoyage balcon, volet roulant chambre...) Il passe voir Mamina mercredi vers 9 h 30
+Il voulait également vérifier que tout allait bien pour les numéros de compteur communiqués par SLH pour les abonnements Elec et Gaz. 
+A tenu à insister sur le fait que ce sont 2 services distincts et que le service minimum serait actif un mois.
+Apparemment tout est en ordre.
+
+* La nantaise des eaux m'a appelée pour que je leur communique le numéro de compteur afin de finaliser la souscription. Je n'ai pas pu ouvrir les placards sur le pallier, ils sont fermés à clef. Je passerai demain pour laisser un petit mot pour Mr Huteau.
+                                                 ----------
 
 * Téléphone à EDF pour régler le problème. Normalement tout est clair. Peut-être faudra-t-il appuyer sur le + du compteur.
 * Nous sommes passé avec Mamina pour faire le changement d'adresse à la Poste.
