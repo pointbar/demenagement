@@ -18,6 +18,7 @@ A tenu à insister sur le fait que ce sont 2 services distincts et que le servic
 Apparemment tout est en ordre.
 
 * La nantaise des eaux m'a appelée pour que je leur communique le numéro de compteur afin de finaliser la souscription. Je n'ai pas pu ouvrir les placards sur le pallier, ils sont fermés à clef. Je passerai demain pour laisser un petit mot pour Mr Huteau.
+
                                                  ----------
 
 * Téléphone à EDF pour régler le problème. Normalement tout est clair. Peut-être faudra-t-il appuyer sur le + du compteur.
