@@ -7,6 +7,24 @@
 # Quotidiennes
 
 ---
+MERCREDI 4 JUILLET
+---
+AUJOURD HUI 
+
+* Nantaise des eaux : OK
+
+* Bonne nouvelle : Mamina a accepté d'utiliser le téléphone portable 
+Son numéro : 06 44 71 29 39 
+
+DEMAIN
+
+Brigitte et Mélanie viennent
+
+METEO :
+fatigue qui est bien normale
+c'est plutôt up and down en fonction des petits + et des petits - !!!
+aujourd'hui : pb de machine à laver, en fait c'est un pb de plomberie, je vais appeler Mr Huteau
+
 LUNDI 2 JUILET
 ---
 
