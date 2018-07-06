@@ -7,6 +7,13 @@
 # Quotidiennes
 
 ---
+VENDREDI 6 JUILLET
+---
+AUJOURD'HUI
+
+* Tél à Mme Cousseau pour vérifier le problème de téléphone. Réponse => Les technicien·ne·s sont dessus, ça devrait être résolu en début de semaine.
+
+---
 MERCREDI 4 JUILLET
 ---
 AUJOURD HUI 
