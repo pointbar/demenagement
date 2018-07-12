@@ -6,6 +6,15 @@
 
 # Quotidiennes
 
+
+---
+**JEUDI 12 JUILLET**
+---
+AUJOURD'HUI
+
+- Rappel RED pour prévenir la réparation de France Telecom
+- Appel déchets Mortagne
+
 ---
 VENDREDI 6 JUILLET
 ---
