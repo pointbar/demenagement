@@ -6,6 +6,34 @@
 
 # Quotidiennes
 
+---
+**LUNDI 16 JUILLET**
+---
+AUJOURD'HUI
+
+- Branchement ADSL Box - ✅
+- Branchement TV - ✅
+- Activation téléphone - ✅
+- Documentation dans le document -Memento-
+- Mobile retour sur la Poste
+- Paramètrage réseau wifi et TV
+- Démontage décodeur
+- Appel Sèvre Loire Habitat pour annuler le rdv technicien TV
+- Test télécommande universelle
+
+DEMAIN
+
+- Remboursement décodeur
+- Rendez-vous déchets
+- Déchetterie
+- Affaires stéphane
+- Formation Mamina
+- Organisation propre des box
+- Chercher un forfait mobile pas cher et qui capte bien
+
+METEO :
+
+☀️
 
 ---
 **JEUDI 12 JUILLET**
