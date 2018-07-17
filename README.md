@@ -7,6 +7,25 @@
 # Quotidiennes
 
 ---
+**MARDI 17 JUILLET**
+---
+AUJOURD'HUI
+
+- Remboursement décodeur - ✅
+- Chercher un forfait mobile pas cher et qui capte bien - 1,99€ - ✅
+- Formation Mamina
+- Organisation propre des box
+
+DEMAIN
+- Rendez-vous déchets
+- Déchetterie
+- Affaires stéphane
+- Étagère
+
+METEO :
+☀️
+
+---
 **LUNDI 16 JUILLET**
 ---
 AUJOURD'HUI
@@ -32,7 +51,6 @@ DEMAIN
 - Chercher un forfait mobile pas cher et qui capte bien
 
 METEO :
-
 ☀️
 
 ---
