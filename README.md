@@ -4,7 +4,26 @@
 
 [Documentation](https://drive.google.com/drive/folders/1Ufv4J332j97pa5vl8jurDqzsxcv3khc3)
 
+[Signalement des problèmes](https://annuel.framapad.org/p/retailleau-langlois)
+
 # Quotidiennes
+
+---
+**MERCREDI 18 JUILLET**
+---
+AUJOURD'HUI
+- Déchetterie
+- Affaires stéphane -1-
+- Rendez-vous Detex
+- Courrier mobile SOSH-ORANGE
+- Signalement SLH des problèmes
+- Miam à Poucet et réservation pour son anniversaire dimanche
+
+DEMAIN
+- Rendez-vous déchets
+
+METEO :
+🌤
 
 ---
 **MARDI 17 JUILLET**
