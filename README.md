@@ -16,6 +16,8 @@ AUJOURD'HUI
 - Affaires stéphane -1-
 - Rendez-vous Detex
 - Courrier mobile SOSH-ORANGE
+- Courrier règlement Detex
+- Actualisation budget
 - Signalement SLH des problèmes
 - Miam à Poucet et réservation pour son anniversaire dimanche
 
