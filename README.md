@@ -12,7 +12,7 @@
 **MERCREDI 18 JUILLET**
 ---
 AUJOURD'HUI
-- Déchetterie
+- Décheterie
 - Affaires stéphane -1-
 - Rendez-vous Detex
 - Courrier mobile SOSH-ORANGE
