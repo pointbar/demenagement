@@ -9,6 +9,27 @@
 # Quotidiennes
 
 ---
+**LUNDI 3 SEPTEMBRE**
+---
+AUJOURD'HUI
+- Nantaise des eaux passage au prélèvement mensuel : 20€
+- Veolia (Cheminée) - arrêt des prélèvements
+- Claveau, lettre dermato
+- Prendre aspirateur, sécateur, spatule
+- Kilométrage assurance
+
+DEMAIN
+- Rendez-vous dermato
+- Passage banque > web
+- La cheminée : rebouchage, sacs de déchets verts, affaires, aspirateur
+- (Carte grise mercredi)
+- Rembourser 50€
+- Envoyer les renseignement M. Godet
+
+METEO
+🌤
+
+---
 **MERCREDI 18 JUILLET**
 ---
 AUJOURD'HUI
