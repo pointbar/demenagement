@@ -7,7 +7,14 @@
 [Signalement des problèmes](https://annuel.framapad.org/p/retailleau-langlois)
 
 # Quotidiennes
-
+---
+SAMEDI 24 NOVEMBRE
+- ACTE AUTHENTIQUE DE VENTE ST LEGER SIGNE LE 23/11/2018
+- Informé via espace personnel les impôts que la vente de la maison est finalisée, ait joint l'attestation du notaire
+demandé suppression taxe foncière
+- informé Allianz par mail pour suspendre la RC de St Léger
+- Reste à appeler VEOLIA pour fermer compteur eau (je n'ai pas pu le faire via espace client = compte inconnu)
+RELEVE DE COMPTEUR LE 22/11/2018 : 00946593 
 ---
 **LUNDI 3 SEPTEMBRE**
 ---
