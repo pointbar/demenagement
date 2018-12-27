@@ -1,0 +1,10 @@
+[.text-left]
+Align me to the left.
+
+and some docinfo content
+
+<style>
+.text-left {
+  text-align: left;
+}
+</style>
